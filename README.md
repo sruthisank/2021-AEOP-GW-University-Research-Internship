@@ -1,0 +1,2 @@
+# 2021-AEOP-GW-University-Research-Internship
+As part of the US Army sponsored education outreach program had the opportunity to get involved in Optics research Lab in George Washington University.  This is paid internship spanning over the period of 9 weeks. Completed the novel vortex mapping of electromagnetic Spectrum,  Led the experiments on Laser and Plasma. Analyzed the patterns in Spectrascopy.
